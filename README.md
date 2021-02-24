@@ -1,8 +1,13 @@
-# Converse House ISU
+# Converse House - Friley - ISU
 ![images/ConverseHouse2019](./images/ConverseHouse2019.jpg)
 
-Converse House Website
+### Converse House - Friley Hall - Iowa State University (1974 to 1988 ish)
 
-[VideoLink](https://meet.google.com/hts-byot-kkb)
+[Facebook Private Group](https://www.facebook.com/groups/90560379326)
 
-[VideoLink - 2](https://meet.google.com/xfz-ccbf-bst)
+[VideoLink - Test1](https://meet.google.com/hts-byot-kkb)
+
+[VideoLink - Test2](https://meet.google.com/xfz-ccbf-bst)
+
+Looking for list ask BooBoo.
+<!-- https://docs.google.com/spreadsheets/d/1NTEQ1UdXy6wQKE9g0B5103gNagsG2b1LZgD4TrocEcs/edit#gid=998356282 -->
