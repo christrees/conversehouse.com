@@ -1,4 +1,4 @@
 # Converse House ISU
 Converse House Website
 
-[VideoLink](meet.google.com/hts-byot-kkb)
+[VideoLink](https://meet.google.com/hts-byot-kkb)
