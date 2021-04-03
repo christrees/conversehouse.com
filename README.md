@@ -5,6 +5,16 @@
 
 [Facebook Private Group](https://www.facebook.com/groups/90560379326)
 
+[Converse House Meeting - First Friday every Month at 5 PM CST](https://meet.google.com/mwv-rqcn-zpo)
+
+[Converse Wino Side Room]()
+[Converse SYD Side Room]()
+[Converse Casanova Side Room]()
+[Converse Helser Sucks Side Room]()
+[Converse Hey Kimblle Side Room]()
+
+Himbo and I did a meeting and elected BooBoo to run the above rooms.
+
 [VideoLink - Test1 - BooBoo Test - Sat Apr 3 starting at 6 PM till I get bored](https://meet.google.com/mwv-rqcn-zpo)
 
 [VideoLink - Test2](https://meet.google.com/xfz-ccbf-bst)
