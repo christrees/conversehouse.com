@@ -7,11 +7,11 @@
 
 [Converse House Meeting - First Friday every Month at 5 PM CST](https://meet.google.com/mwv-rqcn-zpo)
 
-[Converse Wino Side Room]()
-[Converse SYD Side Room]()
-[Converse Casanova Side Room]()
-[Converse Helser Sucks Side Room]()
-[Converse Hey Kimblle Side Room]()
+- [Converse Wino Side Room]()
+- [Converse SYD Side Room]()
+- [Converse Casanova Side Room]()
+- [Converse Helser Sucks Side Room]()
+- [Converse Hey Kimblle Side Room]()
 
 Himbo and I did a meeting and elected BooBoo to run the above rooms.
 
