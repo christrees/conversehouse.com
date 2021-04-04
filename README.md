@@ -5,7 +5,7 @@
 
 [Facebook Private Group](https://www.facebook.com/groups/90560379326)
 
-[Converse House Meeting - First Friday every Month at 5 PM CST](https://meet.google.com/mwv-rqcn-zpo)
+[Converse House Meeting - First Friday every Month at 5 PM CST](https://meet.google.com/efv-bzzx-pqa)
 
 - [Converse Wino Side Room]()
 - [Converse SYD Side Room]()
