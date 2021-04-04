@@ -11,7 +11,7 @@
 - [Converse SYD Side Room]()
 - [Converse Casanova Side Room]()
 - [Converse Helser Sucks Side Room]()
-- [Converse Hey Kimblle Side Room]()
+- [Converse Hey Kimball Side Room]()
 
 Himbo and I did a meeting and elected BooBoo to run the above rooms.
 
