@@ -5,10 +5,10 @@
 
 [Facebook Private Group](https://www.facebook.com/groups/90560379326)
 
-[Converse House Meeting - First Friday every Month at 5 PM CST](https://meet.google.com/efv-bzzx-pqa) - cat@conversehouse.com is monitoring 4/3 9:20PM CST - end 4/3 10:17PM
+[Converse House Meeting - First Friday every Month at 5 PM CST](https://meet.google.com/efv-bzzx-pqa) - no monitor
 
-- [Converse Wino Side Room](https://meet.google.com/mwv-rqcn-zpo) - cat@conversehouse.com is monitoring 4/3 9:20PM CST - end 4/3 10:17PM
-- [Converse SYD Side Room](https://meet.google.com/xfz-ccbf-bst) - cat@conversehouse.com is monitoring 4/3 9:20PM CST - end 4/3 10:17PM
+- [Converse Wino Side Room](https://meet.google.com/mwv-rqcn-zpo) - no monitor
+- [Converse SYD Side Room](https://meet.google.com/xfz-ccbf-bst) - no monitor
 - [Converse Casanova Side Room](https://meet.google.com/fut-vyth-gvn) - no monitor
 - [Converse Helser Sucks Side Room](https://meet.google.com/ejn-bqcf-bnv) - no monitor
 - [Converse Hey Kimball Side Room](https://meet.google.com/dqx-daam-epj) - no monitor
@@ -17,6 +17,9 @@ Himbo and I used the link above.  Himbo even updated the web page.  If you all w
 
 All the above rooms are active 'forever'.  The only issue is each room needs someone@conversehouse.com to enter the room FIRST... then they will neet to let others in as they ask to join via the link.  I elect BooBoo, Scout, Gus and Himbo to test.
 
-If you want to monitor a room, email me cat@conversehouse.com and/or christrees@gmail.com so I can get you a conversehouse.com email.
+If you want to monitor a room, email me cat (conversehouse.com) and/or christrees  so I can get you a conversehouse.com email.  Current monitors:
+- booboo@conversehouse.com
+- gus@conversehouse.com
+- himbo@conversehouse.com
 
 <!-- https://docs.google.com/spreadsheets/d/1NTEQ1UdXy6wQKE9g0B5103gNagsG2b1LZgD4TrocEcs/edit#gid=998356282 -->
