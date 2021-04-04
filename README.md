@@ -5,10 +5,10 @@
 
 [Facebook Private Group](https://www.facebook.com/groups/90560379326)
 
-[Converse House Meeting - First Friday every Month at 5 PM CST](https://meet.google.com/efv-bzzx-pqa) - cat@conversehouse.com is monitoring 4/3 9:20PM CST
+[Converse House Meeting - First Friday every Month at 5 PM CST](https://meet.google.com/efv-bzzx-pqa) - cat@conversehouse.com is monitoring 4/3 9:20PM CST - end 4/3 10:17PM
 
-- [Converse Wino Side Room](https://meet.google.com/mwv-rqcn-zpo) - cat@conversehouse.com is monitoring 4/3 9:20PM CST
-- [Converse SYD Side Room](https://meet.google.com/xfz-ccbf-bst) - cat@conversehouse.com is monitoring 4/3 9:20PM CST
+- [Converse Wino Side Room](https://meet.google.com/mwv-rqcn-zpo) - cat@conversehouse.com is monitoring 4/3 9:20PM CST - end 4/3 10:17PM
+- [Converse SYD Side Room](https://meet.google.com/xfz-ccbf-bst) - cat@conversehouse.com is monitoring 4/3 9:20PM CST - end 4/3 10:17PM
 - [Converse Casanova Side Room](https://meet.google.com/fut-vyth-gvn) - no monitor
 - [Converse Helser Sucks Side Room](https://meet.google.com/ejn-bqcf-bnv) - no monitor
 - [Converse Hey Kimball Side Room](https://meet.google.com/dqx-daam-epj) - no monitor
