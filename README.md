@@ -17,4 +17,6 @@ Himbo and I used the link above.  Himbo even updated the web page.  If you all w
 
 All the above rooms are active 'forever'.  The only issue is each room needs someone@conversehouse.com to enter the room FIRST... then they will neet to let others in as they ask to join via the link.  I elect BooBoo, Scout, Gus and Himbo to test.
 
+If you want to monitor a room, email me cat@conversehouse.com and/or christrees@gmail.com so I can get you a conversehouse.com email.
+
 <!-- https://docs.google.com/spreadsheets/d/1NTEQ1UdXy6wQKE9g0B5103gNagsG2b1LZgD4TrocEcs/edit#gid=998356282 -->
