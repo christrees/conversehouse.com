@@ -22,4 +22,10 @@ If you want to monitor a room, email me cat (conversehouse.com) and/or christree
 - gus@conversehouse.com
 - himbo@conversehouse.com
 
+### Converse House pure Web-RTC
+The below link is TOTALLY OPEN ALWAYS.  It connects your Camera and Audio to anyone who is on that link.  If you enter the room and only see yourself hit your browser refresh.
+
+- [Converse House Fully Open Public Room](https://zoom-app-clone.herokuapp.com/conversehouse)
+
+
 <!-- https://docs.google.com/spreadsheets/d/1NTEQ1UdXy6wQKE9g0B5103gNagsG2b1LZgD4TrocEcs/edit#gid=998356282 -->
