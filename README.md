@@ -5,8 +5,8 @@
 
 [Facebook Private Group](https://www.facebook.com/groups/90560379326)
 
-[Converse House Meeting - Next Meeting Sunday 18 April 5 PM CDT](https://meet.google.com/efv-bzzx-pqa)
-* Don't be a study dwid! Click the link ABOVE and join the meeting via Google Meet. Rumor has it that Scout has the inside track to win SYD.
+[Converse House Meeting - Next Meeting Sunday 16 May PM CDT](https://meet.google.com/efv-bzzx-pqa)
+* I propose this time for the next meeting, but will alter it to suit. Tell your friends to be there. SUNDAY, SUNDAY, SUNDAY!!!!
 
 ### Alternate Side Rooms
 - [Converse Wino Side Room](https://meet.google.com/mwv-rqcn-zpo) 
