@@ -1,6 +1,12 @@
 # Converse House - Friley - ISU
 ![images/ConverseHouse2019](./images/ConverseHouse2019.jpg)
 
+## ISU Cheez-It Bowl 
+![images/ISUFootball](./images/ISUFootball.png)
+
+[Converse House Meeting - 4:45 p.m. kick on Dec. 29.](https://meet.google.com/efv-bzzx-pqa)
+
+
 ## Converse House - Friley Hall - Iowa State University (1974 to 1988 ish)
 
 [Facebook Private Group](https://www.facebook.com/groups/90560379326)
