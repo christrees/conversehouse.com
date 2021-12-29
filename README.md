@@ -4,7 +4,7 @@
 
 ![images/ISUFootball](./images/ISUFootball.png)
 
-### [Gus Portal-TV Link](https://msngr.com/bwfspmpbfkoh)
+### [ISUGame - Facebook Room - Portal Link](https://msngr.com/usrzhkgkzebs)
 
 # Converse House - Friley - ISU
 ![images/ConverseHouse2019](./images/ConverseHouse2019.jpg)
