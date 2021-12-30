@@ -13,7 +13,7 @@
 
 [Facebook Private Group](https://www.facebook.com/groups/90560379326)
 
-[Converse House Meeting - Next Meeting Sunday 16 May 7pm CDT](https://meet.google.com/efv-bzzx-pqa)
+[Converse House Meeting - The DEN is always open](https://meet.google.com/efv-bzzx-pqa)
 * Following some discussion via the e-mail list, we will give __7pm Central Daylight Time__ a try for the meeting time.  
 * Tell your friends, let's try for a quorum this time, the more the merrier.  
 
