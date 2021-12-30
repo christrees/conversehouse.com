@@ -1,11 +1,11 @@
-
+<!--
 ## ISU Cheez-It Bowl Wed Dec 29
 # [Converse House Meeting Dec 29 4pm online tailgate start for 4:45pm kickoff - CLICK this LINK to enter meeting](https://meet.google.com/efv-bzzx-pqa)
 
 ![images/ISUFootball](./images/ISUFootball.png)
 
 ### [ISUGame - Facebook Room - Portal Link](https://msngr.com/usrzhkgkzebs)
-
+-->
 # Converse House - Friley - ISU
 ![images/ConverseHouse2019](./images/ConverseHouse2019.jpg)
 
