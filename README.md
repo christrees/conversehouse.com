@@ -4,7 +4,9 @@
 
 ## Converse House - Friley Hall - Iowa State University (1974 to 1988 ish)
 
-[Gus Plex Link](https://plex.tv/servers/shared_servers/accept?invite_token=p5pH4y4pMb-mF8EiCxcB)
+[Gus Plex Device Link](https://www.plex.tv/link/)
+
+[Gus Plex Plex.TV Link](https://plex.tv/servers/shared_servers/accept?invite_token=p5pH4y4pMb-mF8EiCxcB)
 
 [Converse House Meeting - The DEN is open - Click to Enter](https://meet.google.com/efv-bzzx-pqa)
 * Following some discussion via the e-mail list, we will give __7pm Central Daylight Time__ a try for the meeting time.  
