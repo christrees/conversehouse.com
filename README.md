@@ -4,7 +4,7 @@
 
 ## Converse House - Friley Hall - Iowa State University (1974 to 1988 ish)
 
-[Converse House Meeting - The DEN is open - Click to Enter](https://meet.google.com/efv-bzzx-pqa)
+# Converse House [Meeting - The DEN is open - Click to Enter](https://meet.google.com/efv-bzzx-pqa)
 
 <!--
 
