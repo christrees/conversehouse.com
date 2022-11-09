@@ -5,8 +5,6 @@
 ## Converse House - Friley Hall - Iowa State University (1974 to 1988 ish)
 
 [Converse House Meeting - The DEN is open - Click to Enter](https://meet.google.com/efv-bzzx-pqa)
-* Following some discussion via the e-mail list, we will give __7pm Central Daylight Time__ a try for the meeting time.  
-* Tell your friends, let's try for a quorum this time, the more the merrier.  
 
 ### Alternate Side Rooms
 - [Converse Wino Side Room](https://meet.google.com/mwv-rqcn-zpo) 
