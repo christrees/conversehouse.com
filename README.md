@@ -17,6 +17,8 @@
 
 All the above rooms are active 'forever'.  A Conversehouse.com floor monitor is required to let others in.
 
+<!--
+
 #### Current floor monitors:
 - booboo@conversehouse.com
 - gus@conversehouse.com
@@ -28,7 +30,8 @@ All the above rooms are active 'forever'.  A Conversehouse.com floor monitor is 
 ![image1](./images/ISUCheezItBowl20211229.png)
 ![image2](./images/ISUCheezItBowl20211229-2.png)
 ![image3](./images/ISUCheezItBowl20211229-3.png)
-<!--
+
+
 
 # [Converse House Meeting Dec 29 4pm online tailgate start for 4:45pm kickoff - CLICK this LINK to enter meeting](https://meet.google.com/efv-bzzx-pqa)
 
