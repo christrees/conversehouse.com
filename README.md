@@ -6,12 +6,16 @@
 
 [Converse House Meeting - The DEN is open - Click to Enter](https://meet.google.com/efv-bzzx-pqa)
 
+<!-
+
 ### Alternate Side Rooms
 - [Converse Wino Side Room](https://meet.google.com/mwv-rqcn-zpo) 
 - [Converse SYD Side Room](https://meet.google.com/xfz-ccbf-bst) 
 - [Converse Casanova Side Room](https://meet.google.com/fut-vyth-gvn) 
 - [Converse Helser Sucks Side Room](https://meet.google.com/ejn-bqcf-bnv) 
 - [Converse Hey Kimball Side Room](https://meet.google.com/dqx-daam-epj) 
+
+->
 
 All the above rooms are active 'forever'.  A Conversehouse.com floor monitor is required to let others in.
 
