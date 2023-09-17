@@ -13,7 +13,7 @@
 - [Converse SYD Side Room](https://meet.google.com/xfz-ccbf-bst) 
 - [Converse Casanova Side Room](https://meet.google.com/fut-vyth-gvn) 
 - [Converse Helser Sucks Side Room](https://meet.google.com/ejn-bqcf-bnv) 
-- [Converse Hey Kimball Side Room](https://meet.google.com/dqx-daam-epj) 
+- [Converse Hey Kimball Side Room](https://meet.google.com/dqx-daam-epj) - gus site room
 
 -->
 
