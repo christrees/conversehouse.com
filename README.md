@@ -19,9 +19,9 @@
 
 All the above rooms are active 'forever'.  A Conversehouse.com floor monitor is required to let others in.
 
-Link to the [BooBoo Google Doc](https://docs.google.com/spreadsheets/d/1NTEQ1UdXy6wQKE9g0B5103gNagsG2b1LZgD4TrocEcs/edit#gid=998356282)
-
 <!--
+
+Link to the [BooBoo Google Doc](https://docs.google.com/spreadsheets/d/1NTEQ1UdXy6wQKE9g0B5103gNagsG2b1LZgD4TrocEcs/edit#gid=998356282)
 
 #### Current floor monitors:
 - booboo@conversehouse.com
